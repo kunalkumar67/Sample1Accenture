@@ -1,1 +1,1 @@
-# SampleAccentureLearningVantagexxx
+# SampleAccentureLearningVantage
